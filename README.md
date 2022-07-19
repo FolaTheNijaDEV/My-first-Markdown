@@ -1,3 +1,3 @@
-# Started A new course from a knowleadgable Teacher  DREW from twitter do not know his full name though
+# Started A new Coding course from a knowleadgable Teacher  CODING WITH DREW  
 
 #also using my github more  so help me God
